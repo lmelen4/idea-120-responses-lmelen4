@@ -3,3 +3,4 @@ Some contemporary tools that can be used to create art such as Gesamtkunstwerk's
 
 In my opinion I feel there is always some form of Gesamtkunstwerk in any art work that is done. With Rhizome Anthology net art, since they are always adding something new to make the art better it is a form of Gesamtkunsterk since they are trying to get new and more emotions out of people. When adding more art it builds more emotions and new ideas for people to think and feel on. I feel like this would qualify because yes it is slightly different than the other type of art, but individuals are going to show emotion and some may even feel what the image is describing. With the other form of art it is more theater based which is why it is slightly different but it kind of has the same aspect. 
 <!-- This is a comment -->
+<!-- batman -->
