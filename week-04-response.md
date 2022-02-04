@@ -1,1 +1,2 @@
-week-04-response.md
+![This is an image](http://www.worldtrans.org/TP/TP1/oldyoung.gif)
+I have always found this image to be very powerful and always have different messages. There are many people that see a different image when viewing this, some may see a bird, an old women or a young women, etc. Each image does not show their face which in itself can also be a message. I can never quite understand this specific image at all so I chose this image to see what other people think is the message and what this may signify. 
