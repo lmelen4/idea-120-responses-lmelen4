@@ -1,0 +1,1 @@
+My proposal or idea that I have for my non-linear narrative is something like the shows that I have watched on netlix. A non-linear is a storyline of the past, present and sometimes future about their story or something else. I am not quite sure what story I want to tell that represents a past present and/or future
