@@ -1,1 +1,1 @@
-The content that I want to include in my portfolio is 
+The content that I want to include in my portfolio are the projects that I have done in the past. I want to be able to show the progress that I have made while taking this class and the coding that I have learned. I am going to try to show the little snippets of the projects that I have done. I would provide small little folders that will go to the projects that I have done also If I cannot show the whole game then I will provide pictures. I want to add a little color as well to my portfolio and just have it pop out. 
