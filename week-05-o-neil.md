@@ -1,1 +1,1 @@
-A WMD means "Weapons of Math Destruction". 
+A WMD means "Weapons of Math Destruction". She goes into detail why this is such a bad thing and why she hated the way they calculate the scores. She goes more into saying that the test scores are not fair enough and how they are continuosly affecting peoples lives. 
